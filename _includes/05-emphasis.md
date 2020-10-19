@@ -1,4 +1,5 @@
-*Best quotes*
+*Best quotes:* 
+
 _The way to get started is to quit talking and begin doing._
 
 **Your time is limited, so don't waste it living someone else's life.**
