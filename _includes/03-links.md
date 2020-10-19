@@ -1,1 +1,1 @@
-Replace this with a link to your a GitHub or social media profile.
+[Asus ROG](https://eshop.asus.com/es-ES/smartphones/rog-phone-3)
